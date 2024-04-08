@@ -4,3 +4,6 @@
 
 ## Mes Projets
 
+## Me contacter  
+
+Mon mail : gregoirestoupy@gmail.com
